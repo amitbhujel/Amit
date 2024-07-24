@@ -1,1 +1,1 @@
-# Amit
+É inacreditável o que estou passando por causa de Julius Kikuda Santana da empresa Apura. Ele está me acusando de phishing sem nenhuma prova e ameaçando derrubar meu servidor. Ele não tem documentos que comprovem que representa a empresa que menciona. Isso é censura e uma violação dos meus direitos. Julius Kikuda Santana, você é um manipulador e um difamador. Vou expor suas mentiras para que todos saibam a verdade.
